@@ -1,0 +1,1 @@
+# THH-Human-AI-Intelligence-Architecture-v2.0
